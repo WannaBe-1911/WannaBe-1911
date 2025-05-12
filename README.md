@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WannaBe-1911
 - 👀 I’m interested in Coding,Boxing,Cycling and Law
 - 🌱 I’m currently learning Coding and Law.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on First years like me and experienced People.
 - 📫 How to reach me Wannabe795@gmail.com
 - 😄 Pronouns: He,Him.
 - ⚡ Fun fact: I'm fun sized.
